@@ -1,1 +1,0 @@
-# igzunigava.github.io
